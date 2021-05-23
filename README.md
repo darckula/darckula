@@ -1,0 +1,5 @@
+- 👋 Hi, I’m @darckula
+- 👀 I’m interested in politics and data
+- 🌱 I’m currently learning how make videos in youtube
+- 💞️ I’m looking to collaborate on ...
+- 📫 You can reach me on Twitter (@darckula) or YouTube [Darckula - en busca de la verdad](https://www.youtube.com/channel/UCZZRCVrKtcf7WJ9t82TrcmQ)
